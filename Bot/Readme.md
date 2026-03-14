@@ -1,4 +1,4 @@
-
+แจก GEM Ai ผู้ช่วยทำแผนการเรียน ..การสอน https://gemini.google.com/gem/1fMgVwXUuhw_roA_WL0HW8b44QOyyFS7_?usp=sharing
 
 น้องพลอย ช่วยเขียนแผนรายหน่วยให้ครู https://chatgpt.com/g/g-677b43ca64848191ac2e5e78aaf59aa8-n-ngphl-y-chwyekhiiynaephnraayhnwyaihkhruu-aachiiwsueksaa
 
